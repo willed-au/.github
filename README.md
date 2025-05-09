@@ -1,6 +1,6 @@
 # Willed
 
-https://www.willed.com.au/
+https://www.willed.com.au
 
 At Willed, we make end-of-life planning simple, affordable and accessible for all Australians.
 
